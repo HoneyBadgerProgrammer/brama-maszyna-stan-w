@@ -1,0 +1,1 @@
+# brama-maszyna-stan-w
